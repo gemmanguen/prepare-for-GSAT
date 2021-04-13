@@ -12,6 +12,18 @@
 
 (5) https://www.youtube.com/channel/UC_1TWOrzn23SvCoR93WyRwA/videos
 
+(6) https://testgsatsamsung.blogspot.com/
+
+1. Tính nhanh: https://testgsatsamsung.blogspot.com/2017/04/test-1_20.html
+2. Dãy số, suy luận: https://testgsatsamsung.blogspot.com/2017/04/test-2_20.html
+3. Test Logic, Hình: https://testgsatsamsung.blogspot.com/2017/04/test-logic-30_20.html
+4. Tính diện tích, thể tích, hình: https://testgsatsamsung.blogspot.com/2017/04/bai-tap-lien-quan-en-cac-cong-thuc-tinh_20.html
+5. Logic Hình: https://testgsatsamsung.blogspot.com/2017/04/bai-tap-bo-sung_20.html
+6. Đề thi tổng hợp: https://testgsatsamsung.blogspot.com/2017/04/e-thi-gsat-va-iq-thi-samsung-viet-nam.html
+7. Test IQ 1: https://testgsatsamsung.blogspot.com/2017/04/iq-test-thoi-gian-20-phut-20-cau-hoi.html
+8. Test IQ 2: https://testgsatsamsung.blogspot.com/2017/04/e-thi-on-luyen-iq-co-ap-an.html
+9. Kinh nghiệm đi thi: https://testgsatsamsung.blogspot.com/2017/04/kinh-nghiem-thi-tuyen-dung-cho-cong-ty.html
+
 
 On to preparing for the examination. Let me break it down for you. There are a total of 3 different sections in the exam.
 
