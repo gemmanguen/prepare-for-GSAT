@@ -10,6 +10,8 @@
 
 (4) https://www.practiceaptitudetests.com/test/samsung/1
 
+(5) https://www.youtube.com/channel/UC_1TWOrzn23SvCoR93WyRwA/videos
+
 
 On to preparing for the examination. Let me break it down for you. There are a total of 3 different sections in the exam.
 
