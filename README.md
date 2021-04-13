@@ -6,8 +6,6 @@
 
 (2) https://findingtheseoul.com/2014/10/13/samsung-gsat-test/
 
-(3) https://blog.oureducation.in/wp-content/uploads/2013/09/GSAT-Sample-Paper-with-Solutions.pdf
-
 On to preparing for the examination. Let me break it down for you. There are a total of 3 different sections in the exam.
 
 1. Quantitative Reasoning (20 questions, 30 minutes)
