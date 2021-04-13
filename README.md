@@ -4,6 +4,8 @@
 
 (1) https://www.hairlessly.xyz/2019/10/samsung-gsat-exam-in-south-korea.html
 
+(2) https://findingtheseoul.com/2014/10/13/samsung-gsat-test/
+
 On to preparing for the examination. Let me break it down for you. There are a total of 3 different sections in the exam.
 
 1. Quantitative Reasoning (20 questions, 30 minutes)
