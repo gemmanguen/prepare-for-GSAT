@@ -8,6 +8,8 @@
 
 (3) https://blog.oureducation.in/wp-content/uploads/2013/09/GSAT-Sample-Paper-with-Solutions.pdf
 
+(4) https://www.practiceaptitudetests.com/test/samsung/1
+
 
 On to preparing for the examination. Let me break it down for you. There are a total of 3 different sections in the exam.
 
