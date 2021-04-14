@@ -1,6 +1,25 @@
 # prepare-for-GSAT
 
-## GSAT consists of 2 test sections : Analytical Thinking and Logical Thinking.
+# GSAT consists of 2 test sections : Analytical Thinking and Logical Thinking.
+
+[Samsung Electronics] Full-time opportunity for international students
+
+NGUYEN MANH DUC(nguyenmanhduc18@gmail.com),
+
+you have passed the application screening stage.
+
+GSAT consists of 2 test sections : Analytical Thinking and Logical Thinking.
+
+Applicants may take the test on Personal Computer
+
+and alone in an independent test venue such as room at home or dormitory.
+
+Please check the followings carefully.
+
+[Candidate Number : 21498094]
+
+DEAR-422-11142113042354-067
+
 
 (1) https://www.hairlessly.xyz/2019/10/samsung-gsat-exam-in-south-korea.html
 
