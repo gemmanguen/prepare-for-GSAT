@@ -33,6 +33,8 @@ DEAR-422-11142113042354-067
 
 (6) https://testgsatsamsung.blogspot.com/
 
+(7) https://timviec365.vn/blog/de-thi-gsat-samsung-new10509.html
+
 1. Tính nhanh: https://testgsatsamsung.blogspot.com/2017/04/test-1_20.html
 2. Dãy số, suy luận: https://testgsatsamsung.blogspot.com/2017/04/test-2_20.html
 3. Test Logic, Hình: https://testgsatsamsung.blogspot.com/2017/04/test-logic-30_20.html
