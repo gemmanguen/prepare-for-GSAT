@@ -20,6 +20,13 @@ Please check the followings carefully.
 
 DEAR-422-11142113042354-067
 
+https://koreajoongangdaily.joins.com/2020/05/13/industry/recruitment-process-recruitment-test-public-recruitment/20200513194406324.html
+
+The company also reduced the number of subjects tested from four to two. Verbal and visual thinking are excluded, and only two areas are tested: quantitative analysis and logical reasoning.
+ 
+All four tests will be different to prevent cheating and the leaking of questions.
+ 
+“Considering that it is not easy to concentrate for a long time online, we decided to evaluate only two areas where problem solving and logical thinking skills will be tested," a Samsung official said. The process will take two hours.  
 
 (1) https://www.hairlessly.xyz/2019/10/samsung-gsat-exam-in-south-korea.html
 
